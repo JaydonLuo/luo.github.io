@@ -10,4 +10,4 @@
 
 ### 更多信息
 
-了解更多请发邮件至：luojiandong@mixlinkr.com！
+了解更多请发邮件至：luojiandong@mixlinker.com！
